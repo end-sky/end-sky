@@ -1,3 +1,5 @@
+![E̟̬̝͖͚͚̍̀̽ͬn̯͆͗̽̋d͙̻͎̙̝͈̼̅ͯͧ̆ ̪̺̳͛ͨS̬̖̍̓͑̑́̉k̙͓͖͇̪ͥ͆ͅͅy̟̤̟̰̿͛̾̈́](https://raw.githubusercontent.com/end-sky/end-sky/refs/heads/main/qwertyuiopasdfghjklzxcvbnm.png)
+
 ```txt
 ▓█████  ███▄    █ ▓█████▄      ██████  ██ ▄█▀▓██   ██▓
 ▓█   ▀  ██ ▀█   █ ▒██▀ ██▌   ▒██    ▒  ██▄█▒  ▒██  ██▒

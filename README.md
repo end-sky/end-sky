@@ -13,4 +13,5 @@
 ⬘⬔⬖ 𝓣𝓱𝓮 𝓵𝓪𝓼𝓽 𝓼𝓴𝔂. ⬗⬕⬙
 
 [Website](https://snide.neocities.org)
-![alt text](https://raw.githubusercontent.com/end-sky/end-sky/refs/heads/main/b3af9f05b713143af7bd65c2bb3146b3.jpeg)
+
+![E̟̬̝͖͚͚̍̀̽ͬn̯͆͗̽̋d͙̻͎̙̝͈̼̅ͯͧ̆ ̪̺̳͛ͨS̬̖̍̓͑̑́̉k̙͓͖͇̪ͥ͆ͅͅy̟̤̟̰̿͛̾̈́](https://raw.githubusercontent.com/end-sky/end-sky/refs/heads/main/b3af9f05b713143af7bd65c2bb3146b3.jpeg)

@@ -11,3 +11,4 @@
                    ░                          ░ ░
 ```
 ⬘⬔⬖ 𝓣𝓱𝓮 𝓵𝓪𝓼𝓽 𝓼𝓴𝔂. ⬗⬕⬙
+[Website](https://snide.neocities.org)
